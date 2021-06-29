@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MGS-PRATHEEK
-- 👀 I’m interested in Learning new things.
+- 👀 I’m interested in blogging new things.
 - 🌱 I’m currently learning many things.
 - 💞️ I’m looking to collaborate on Something.
 - 📫 How to reach me -> @mgspratheek@gmail.com
